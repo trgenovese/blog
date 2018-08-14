@@ -4,4 +4,4 @@ title: About
 permalink: /about/
 ---
 
-<i>Omnia Sunt Communia</i> is a blog/scratchpad by [Taylor R. Genovese](http://www.taylorgenovese.com).
+*Omnia Sunt Communia* is a blog/scratchpad for [Taylor R. Genovese](http://www.taylorgenovese.com).
