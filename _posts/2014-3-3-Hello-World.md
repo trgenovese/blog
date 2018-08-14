@@ -1,7 +1,7 @@
 ---
 layout: post
 title: You're up and running!
-date:   2018-08-13 20:57:00 -0700
+date:   August 13, 2018
 categories: jekyll update
 ---
 
