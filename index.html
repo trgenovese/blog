@@ -6,7 +6,7 @@ layout: default
   {% for post in site.posts %}
     <article class="post">
        {{ post.date | date: "%B %-d, %Y" }}
-      <h1 line-height: 0; color: #0000FF;><a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a></h1>
+      <h1 line-height: 0; color: $blue;><a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a></h1>
     </article>
   {% endfor %}
 </div>
