@@ -5,8 +5,8 @@ layout: default
 <div class="posts">
   {% for post in site.posts %}
     <article class="post">
-       {{ post.date | date: "%B %-d, %Y" }}
-      <h1 line-height: 0;><a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a></h1>
+       {{ color: #A9A9A9; post.date | date: "%B %-d, %Y" }}
+      <h1 line-height: 0; color: #0000FF;><a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a></h1>
     </article>
   {% endfor %}
 </div>
