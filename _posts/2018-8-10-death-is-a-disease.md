@@ -1,6 +1,6 @@
 ---
 layout: post
-title: My article "Death is a Disease" Published
+title: My article "Death is a Disease" published
 category: news
 ---
 
