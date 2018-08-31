@@ -6,7 +6,7 @@ category: reading
 
 ![alt text](https://trgenovese.github.io/blog/images/aug18reading.jpeg)
 
-One of the chief problems I faced during the first year of my Ph.D. program was when I remembered I read something really cool but forgot where I had read it. I’ve been inspired by [Kevin Baker’s](https://twitter.com/kevinbaker) [Weekly Reading](http://www.irregularexpressions.org) posts as well as my colleague [Nikki Steven’s](https://twitter.com/drnikki) [Open Source Ph.D.](http://drnikki.github.io) so I’ve decided that every month I will post a list of everything I have read—along with a photograph I have taken that month. Here’s this month; the dawn of my second year.
+One of the chief problems that I faced during the first year of my Ph.D. program was when I remembered that I read something really cool but forgot where I had read it. Taking inspiration from [Kevin Baker’s](https://twitter.com/kevinbaker) [Weekly Reading](http://www.irregularexpressions.org) posts and [Nikki Steven’s](https://twitter.com/drnikki) [Open Source Ph.D.](http://drnikki.github.io), I’ve decided that every month I will post a list of everything I have read—along with a photograph I have taken that month. Here’s this month; the dawn of my second year.
 
 ## Selections from the Web:
 Adelstein, Jake. 2017. ["Japan May Be Moving Right Politically, But Its Communist Party Still Holds Some Sway With Voters.”](https://www.forbes.com/sites/adelsteinjake/2017/10/30/japan-may-be-moving-right-politically-but-its-communist-party-still-holds-some-sway-with-voters/#2d9328787dfc) *Forbes*. October 30.
