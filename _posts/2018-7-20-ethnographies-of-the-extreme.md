@@ -10,4 +10,4 @@ My good friend and colleague [Courtney Cecale](http://www.courtneycecale.com) an
 
 To read the panel and individual paper abstracts, check out the panel's website [here](https://extremeanthropologies.carrd.co).
 ___
-###### Image: Taylor R. Genovese
+###### Image: Taylor R. Genovese, February 2018, Biodesign C Building, Arizona State University, Tempe, AZ
