@@ -4,7 +4,7 @@ title: Reading List // August 2018
 category: reading
 ---
 
-![alt text](https://trgenovese.github.io/blog/images/aug18reading.jpeg “Plane and Surveillance”)
+![alt text](https://trgenovese.github.io/blog/images/aug18reading.jpeg)
 
 One of the chief problems I faced during the first year of my Ph.D. program was when I remembered I read something really cool but forgot where I had read it. I’ve been inspired by [Kevin Baker’s](https://twitter.com/kevinbaker) [Weekly Reading](http://www.irregularexpressions.org) posts as well as my colleague [Nikki Steven’s](https://twitter.com/drnikki) [Open Source Ph.D.](http://drnikki.github.io) so I’ve decided that every month I will post a list of everything I have read—along with a photograph I have taken that month. Here’s this month; the dawn of my second year.
 
