@@ -40,7 +40,7 @@ O’Brien, Tim. 1973. *If I Die in a Combat Zone, Box Me Up and Ship Me Home*. N
 
 VanderMeer, Jeff. 2017. *Borne*. New York: Farrar, Straus and Girgoux.
 
-Wolfe, Cary. 2010. *What is Posthumanism?*. Minneapolis: University of Minnesota Press.
+Wolfe, Cary. 2010. *What is Posthumanism?* Minneapolis: University of Minnesota Press.
 
 ### Journal Articles:
 Connolly, William E. 2013. “The ‘New Materialism’ and the Fragility of Things.” *Millennium: Journal of International Studies* 41 (3): 399–412.
