@@ -15,7 +15,7 @@ Bradley, Joff P.N. 2018. [“For a World beyond Pigs and Dogs: Transversal Utopi
 
 Ciccariello-Maher, George. 2019. [“Oscar Grant Was Our Spark.”](https://communemag.com/oscar-grant-was-our-spark/) *Commune Magazine*.
 
-Denvir, Daniel and Keeanga-Yamahtta Taylor. 2018. [Howard Zinn’s Life on the Frontlines.”](https://www.jacobinmag.com/2018/11/howard-zinns-life-on-the-frontlines) *Jacobin*.
+Denvir, Daniel and Keeanga-Yamahtta Taylor. 2018. ["Howard Zinn’s Life on the Frontlines.”](https://www.jacobinmag.com/2018/11/howard-zinns-life-on-the-frontlines) *Jacobin*.
 
 Dubois, Laurent. 2016. [“Atlantic freedoms.”](https://aeon.co/essays/why-haiti-should-be-at-the-centre-of-the-age-of-revolution) *Aeon*. November 7.
 
