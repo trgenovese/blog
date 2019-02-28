@@ -37,5 +37,6 @@ Lagalisse, Erica. 2019. *Occult Features of Anarchism*. Oakland: PM Press.
 Lewin, Moshe. 2016. *The Soviet Century.* New York: Verso.
 
 Rodriguez, Spain. 2017. *Che: A Graphic Biography.* New York: Verso.
+
 ___
 ###### Image: Taylor R. Genovese, February 13, 2019, Tele-presence, Tempe, Arizona.
