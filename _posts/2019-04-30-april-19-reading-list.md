@@ -27,5 +27,6 @@ Halberstam, J. Jack. 2012. *Gaga Feminism: Sex, Gender, and the End of Normal*. 
 Suny, Ronald Grigor. 2017. *Red Flag Unfurled: History, Historians, and the Russian Revolution*. New York: Verso.
 
 Žižek, Slavoj. 2017. *Lenin 2017*. New York: Verso.
+
 ___
 ###### Image: Taylor R. Genovese, April 11, 2019, Campus Bloom, Tempe, Arizona.
