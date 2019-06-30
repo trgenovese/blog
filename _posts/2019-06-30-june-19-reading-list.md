@@ -11,7 +11,7 @@ Bastani, Aaron. 2019. [“The World Is a Mess. We Need Fully Automated Luxury Co
 
 Gessen, Masha. 2019. [“What HBO’s ‘Chernobyl’ Got Right, And What It Got Terribly Wrong.”](https://www.newyorker.com/news/our-columnists/what-hbos-chernobyl-got-right-and-what-it-got-terribly-wrong?fbclid=IwAR1WAOmx16geFlRtYImcHEbvIzcywfaXBJI87jXay7hAoJZKje_OelIK8FU) *The New Yorker*. June 4.
 
-Langewiesche, William. 2019. [“What Really Happened to Malaysia’s Missing Airplane.](https://www.theatlantic.com/magazine/archive/2019/07/mh370-malaysia-airlines/590653/?utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic&utm_term=2019-06-17T12%3A33%3A44&utm_content=edit-promo&fbclid=IwAR1-8bxfwgyL0PyHz1c8m99gXzcGm2Gd-2m7j2cayqlw47XcoPJbOVc627k#SilkAir) *The Atlantic*. June 17.
+Langewiesche, William. 2019. [“What Really Happened to Malaysia’s Missing Airplane."](https://www.theatlantic.com/magazine/archive/2019/07/mh370-malaysia-airlines/590653/?utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic&utm_term=2019-06-17T12%3A33%3A44&utm_content=edit-promo&fbclid=IwAR1-8bxfwgyL0PyHz1c8m99gXzcGm2Gd-2m7j2cayqlw47XcoPJbOVc627k#SilkAir) *The Atlantic*. June 17.
 
 Prashad, Vijay. 2018. [“The Necessity of Communism.”](https://www.jamhoor.org/read/2018/5/25/the-necessity-of-communism?fbclid=IwAR3ZqVdlhu9ND7QM7QT2ufyaJgEDybTeArHMMeS4B_OJCcZxhVpZ_HrYrgc) *Jamhoor*. May 25.
 
