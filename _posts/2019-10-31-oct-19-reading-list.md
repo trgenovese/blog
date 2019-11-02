@@ -25,4 +25,4 @@ de Certeau, Michel. 2000. *The Possession at Loudun*. Chicago: University of Chi
 Yates, Frances A. 1972. *The Rosicrucian Enlightenment*. New York: Barnes and Noble Books.
 
 ___
-###### Image: Taylor R. Genovese, May 8, 2019, Desert Bloom, Tucson, Arizona.
+###### Image: Taylor R. Genovese, October 11, 2019, Gliding Shadow, Baltimore, Maryland.
