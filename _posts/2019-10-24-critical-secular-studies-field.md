@@ -94,37 +94,37 @@ Yates, Frances. 1972. *The Rosicrucian Enlightenment*. New York: Barnes and Nobl
 
 #### 3. Decoloniality with/against New Materialism ✭ Disenchantment and the question of power
 
-Bynum, Caroline Walker. 2011. Christian Materiality: An Essay on Religion in Late Medieval Europe. Cambridge: MIT Press.
+Bynum, Caroline Walker. 2011. *Christian Materiality: An Essay on Religion in Late Medieval Europe*. Cambridge: MIT Press.
 
-Dolphijn, Rick, and Iris van der Tuin, eds. 2012. New Materialism: Interviews & Cartographies. Ann Arbor: Open Humanities Press. http://hdl.handle.net/2027/spo.11515701.0001.001.
+Dolphijn, Rick, and Iris van der Tuin, eds. 2012. *New Materialism: Interviews & Cartographies*. Ann Arbor: Open Humanities Press. http://hdl.handle.net/2027/spo.11515701.0001.001.
 
-Federici, Silvia. 2004. Caliban and the Witch: Women, the Body and Primitive Accumulation. New York: Autonomedia.
+Federici, Silvia. 2004. *Caliban and the Witch: Women, the Body and Primitive Accumulation*. New York: Autonomedia.
 
 Hinton, Peta, Tara Mehrabi, and Josef Barla. 2015. “New Materialisms/New Colonialisms.” Unpublished Manuscript, Position Paper, AAbo Akademi University, Finland.
 
-Lagalisse, Erica. 2019. Occult Features of Anarchism: With Attention to the Conspiracy of Kings and the Conspiracy of the Peoples. Oakland: PM Press.
+Lagalisse, Erica. 2019. *Occult Features of Anarchism: With Attention to the Conspiracy of Kings and the Conspiracy of the Peoples*. Oakland: PM Press.
 
-Morton, Timothy. 2013. Realist Magic: Objects, Ontology, Causality. Ann Arbor: Open Humanities Press.
+Morton, Timothy. 2013. *Realist Magic: Objects, Ontology, Causality*. Ann Arbor: Open Humanities Press.
 
-Pandolfo, Stefania. 2018. Knot of the Soul: Madness, Psychoanalysis, Islam. Chicago: University Of Chicago Press.
+Pandolfo, Stefania. 2018. *Knot of the Soul: Madness, Psychoanalysis, Islam*. Chicago: University Of Chicago Press.
 
-Rekret, Paul. 2016. “A Critique of New Materialism: Ethics and Ontology.” Subjectivity 9 (3): 225–45. https://doi.org/10.1057/s41286-016-0001-y.
+Rekret, Paul. 2016. “A Critique of New Materialism: Ethics and Ontology.” *Subjectivity* 9 (3): 225–45. https://doi.org/10.1057/s41286-016-0001-y.
 
-Robbins, Jeffrey W. 2016. “Renewing Materialism: Gianni Vattimo and Santiago Zabala and the Hermeneutical Option for the Poor.” Philosophy Today 60 (3): 687–702. https://doi.org/10.5840/philtoday2016713127.
+Robbins, Jeffrey W. 2016. “Renewing Materialism: Gianni Vattimo and Santiago Zabala and the Hermeneutical Option for the Poor.” *Philosophy Today* 60 (3): 687–702. https://doi.org/10.5840/philtoday2016713127.
 
-Schulz, Karsten A. 2017. “Decolonizing Political Ecology: Ontology, Technology and ‘critical’ Enchantment.” Journal of Political Ecology 24 (1): 125–43. https://doi.org/10.2458/v24i1.20789.
+Schulz, Karsten A. 2017. “Decolonizing Political Ecology: Ontology, Technology and ‘critical’ Enchantment.” *Journal of Political Ecology* 24 (1): 125–43. https://doi.org/10.2458/v24i1.20789.
 
-Staal, Jonas. 2019. “Comrades in Deep Future.” E-Flux Journal 102 (September). https://www.e-flux.com/journal/102/283568/comrades-in-deep-future/.
+Staal, Jonas. 2019. “Comrades in Deep Future.” *E-Flux Journal* 102 (September). https://www.e-flux.com/journal/102/283568/comrades-in-deep-future/.
 
-TallBear, Kim. 2017. “Beyond the Life/Not-Life Binary: A Feminist-Indigenous Reading of Cryopreservation, Interspecies Thinking, and the New Materialisms.” In Cryopolitics: Frozen Life in a Melting World, 179–202. Cambridge: The MIT Press.
+TallBear, Kim. 2017. “Beyond the Life/Not-Life Binary: A Feminist-Indigenous Reading of Cryopreservation, Interspecies Thinking, and the New Materialisms.” In *Cryopolitics: Frozen Life in a Melting World*, 179–202. Cambridge: The MIT Press.
 
-Tsing, Anna, Heather Anne Swanson, Elaine Gan, and Nils Bubandt, eds. 2017. Arts of Living on a Damaged Planet: Ghosts and Monsters of the Anthropocene. Minneapolis: University of Minnesota Press.
+Tsing, Anna, Heather Anne Swanson, Elaine Gan, and Nils Bubandt, eds. 2017. *Arts of Living on a Damaged Planet: Ghosts and Monsters of the Anthropocene*. Minneapolis: University of Minnesota Press.
 
-Wark, McKenzie. 2016. Molecular Red: Theory for the Anthropocene. New York: Verso.
+Wark, McKenzie. 2016. *Molecular Red: Theory for the Anthropocene*. New York: Verso.
 
-Yusoff, Kathryn. 2015. “Queer Coal: Genealogies in/of the Blood.” PhiloSOPHIA 5 (2): 203–29.
+Yusoff, Kathryn. 2015. “Queer Coal: Genealogies in/of the Blood.” *PhiloSOPHIA* 5 (2): 203–29.
 
-———. 2019. A Billion Black Anthropocenes or None. Minneapolis: University of Minnesota Press.
+———. 2019. *A Billion Black Anthropocenes or None*. Minneapolis: University of Minnesota Press.
 
 #### 4. Case-based inquiry ✭ Russian Cosmism, Soviet secularization, and cosmonautics
 
