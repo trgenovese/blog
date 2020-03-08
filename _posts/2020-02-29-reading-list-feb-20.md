@@ -19,4 +19,4 @@ Tereshin, Makar. 2018. [“*Polya padeniya.*”](https://www.colta.ru/galleries/
 Harrison, Peter. 2017. *The Territories of Science and Religion*. Chicago: University of Chicago Press.
 
 ___
-###### Image: Taylor R. Genovese, February 12. 2020, Exposed Decay, Tempe, Arizona.
+###### Image: Taylor R. Genovese, February 12, 2020, Exposed Decay, Tempe, Arizona.
