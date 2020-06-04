@@ -21,10 +21,10 @@ Hill, Gord. 2009. *500 Years of Indigenous Resistance*. Oakland: PM Press.
 James, C.L.R. 1963. *The Black Jacobins: Toussaint L’ouverture and the San Domingo Revolution*. New York: Vintage Books.
 
 ### Book Chapters:
-Borck, Lewis. 2018. “Sophisticated Rebels: Meaning Maps and Settlement Structure as Evidence for a Social Movement in the Gallina Region of the North American Southwest.” In Life Beyond the Boundaries: Constructing Identity in Edge Regions of the North American Southwest, edited by Karen G. Harry and Sarah Herr, 88–121. Boulder: University of Colorado Press.
+Borck, Lewis. 2018. “Sophisticated Rebels: Meaning Maps and Settlement Structure as Evidence for a Social Movement in the Gallina Region of the North American Southwest.” In *Life Beyond the Boundaries: Constructing Identity in Edge Regions of the North American Southwest*, edited by Karen G. Harry and Sarah Herr, 88–121. Boulder: University of Colorado Press.
 
 ### Journal Articles:
-Graeber, David. 2015. 2015. “Radical Alterity Is Just Another Way of Saying ‘Reality’: A Reply to Eduardo Viveiros de Castro.” *REDACTED—GDC IS AN ABUSIVE PIG* 5 (2): 1–41. 
+Graeber, David. 2015. 2015. “Radical Alterity Is Just Another Way of Saying ‘Reality’: A Reply to Eduardo Viveiros de Castro.” *JOURNAL REDACTED—GDC IS AN ABUSIVE PIG* 5 (2): 1–41. 
 
 Holbraad, Martin. 2009. “Ontography and Alterity: Defining Anthropological Truth.” *Social Analysis* 53 (2). 
 
