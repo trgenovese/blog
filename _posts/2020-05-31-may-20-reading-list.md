@@ -33,5 +33,6 @@ Hunt, Sarah. 2014. “Ontologies of Indigeneity: The Politics of Embodying a Con
 Todd, Zoe. 2016. “An Indigenous Feminist’s Take On The Ontological Turn: ‘Ontology’ Is Just Another Word For Colonialism: An Indigenous Feminist’s Take on the Ontological Turn.” *Journal of Historical Sociology* 29 (1): 4–22.
 
 Weber, Max. 1958. “Science as a Vocation.” *Daedalus* 87 (1): 111–34.
+
 ___
 ###### Image: Taylor R. Genovese, May 18, 2020, Blooming Cactus, Ashurst Lake, Arizona.
