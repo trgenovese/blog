@@ -45,5 +45,6 @@ Pick, Shane Lawrence. 2020. “Social Being in Juche.” *Peace, Land, and Bread
 [The Queen’s Gambit (2020)](https://letterboxd.com/trgenovese/film/the-queens-gambit/)
 
 [Songs From the North (2014)](https://letterboxd.com/trgenovese/film/songs-from-the-north/)
+
 ___
 ###### Image: Taylor R. Genovese, November 29, 2020, New Growth, Vail, Arizona.
