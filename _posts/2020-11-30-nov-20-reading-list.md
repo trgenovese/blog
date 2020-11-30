@@ -46,4 +46,4 @@ Pick, Shane Lawrence. 2020. “Social Being in Juche.” *Peace, Land, and Bread
 
 [Songs From the North (2014)](https://letterboxd.com/trgenovese/film/songs-from-the-north/)
 ___
-###### Image: Taylor R. Genovese, November 29, 2020, Anthropocene, Vail, Arizona.
+###### Image: Taylor R. Genovese, November 29, 2020, New Growth, Vail, Arizona.
