@@ -51,7 +51,7 @@ Hervouet, Ronan. 2021. “The Moral Economy of the Kolkhoz Worker, Or Why the Pr
 
 [Druk [Another Round] (2020)](https://letterboxd.com/trgenovese/film/another-round/)
 
-[Tenet (2020](https://letterboxd.com/trgenovese/film/tenet/)
+[Tenet (2020)](https://letterboxd.com/trgenovese/film/tenet/)
 
 [星溪的三次奇遇 [Three Adventures of Brooke] (2018)](https://letterboxd.com/trgenovese/film/three-adventures-of-brooke/)
 
