@@ -43,7 +43,7 @@ Hervouet, Ronan. 2021. “The Moral Economy of the Kolkhoz Worker, Or Why the Pr
 
 [Assassins (2020)](https://letterboxd.com/trgenovese/film/assassins-2020/)
 
-[Crossing the Line (2006](https://letterboxd.com/trgenovese/film/crossing-the-line/)
+[Crossing the Line (2006)](https://letterboxd.com/trgenovese/film/crossing-the-line/)
 
 [Bo Burnham: Inside (2021)](https://letterboxd.com/trgenovese/film/bo-burnham-inside/)
 
