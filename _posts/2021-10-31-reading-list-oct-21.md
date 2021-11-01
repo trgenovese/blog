@@ -50,5 +50,7 @@ Djagalov, Rossen. 2021. “Racism, the Highest Stage of Anti-Communism.” *Slav
 
 [Dune (2021)](https://letterboxd.com/trgenovese/film/dune-2021/)
 
+[The Wind Rises (2013)](https://letterboxd.com/trgenovese/film/the-wind-rises/)
+
 ___
 ###### Image: Taylor R. Genovese, October 7, 2021, Self Portrait on a Night Train to Odesa, Somewhere between Kyiv and Odesa, Ukraine.
