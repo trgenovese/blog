@@ -65,5 +65,6 @@ Winston, Henry. 1973. *Strategy For A Black Agenda: A Critique Of New Theories O
 
 [Cloud Atlas (2012)](https://letterboxd.com/trgenovese/film/cloud-atlas/1/) ↻
 
+[Aziz Ansari: Nightclub Comedian (2022)](https://letterboxd.com/trgenovese/film/aziz-ansari-nightclub-comedian/)
 ___
 ###### Image: Taylor R. Genovese, January 31, 2022, Beginning to Pack, Gilbert, Arizona.
