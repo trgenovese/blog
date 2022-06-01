@@ -42,5 +42,9 @@ Groys, Boris. 2022. [“Elements of Gnosticism in Dialectical Materialism (Sovie
 
 [Everything Everywhere All at Once (2022)](https://letterboxd.com/trgenovese/film/everything-everywhere-all-at-once/)
 
+[Bo Burnham: Inside (2021)](https://letterboxd.com/trgenovese/film/bo-burnham-inside/5/) ↻
+
+[Bo Burnham: The Inside Outtakes (2022)](https://letterboxd.com/trgenovese/film/bo-burnham-the-inside-outtakes/)
+
 ___
 ###### Image: Taylor R. Genovese, May 1, 2022, May Day Forest, Hyde Park, New York.
