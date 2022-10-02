@@ -4,7 +4,7 @@ title: Religion, Science, and Critical Secular Studies Field Description and Rea
 category: blog
 ---
 
-## Major Field 2: Religion, Science, and Critical Secular Studies
+## Major Field: Religion, Science, and Critical Secular Studies
 
 This field attends to the historical processes whereby conceptual binaries get established and mobilized toward (i) the formation of “secularization” as a modern philosophy of history, (ii) the “secular” as a modern epistemic domain, and (iii) “secularity” as a modern political doctrine. It thus also attends to (iv) the role of the social and human sciences in the production and reproduction of these processes, and the question of how they might (re)constitute the project of critique in relation to them.
 
