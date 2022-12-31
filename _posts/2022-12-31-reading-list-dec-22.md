@@ -45,7 +45,7 @@ Ishchenko, Volodymyr. 2022. “Ukrainian Voices?” *New Left Review* 138: 1–1
 
 [The Road to Mangasanti (2017)](https://letterboxd.com/trgenovese/film/the-road-to-magnasanti/)
 
-[Temporary Color (2016](https://letterboxd.com/trgenovese/film/temporary-color/)
+[Temporary Color (2016)](https://letterboxd.com/trgenovese/film/temporary-color/)
 
 [Молох [Moloch] (1999)](https://letterboxd.com/trgenovese/film/moloch/)
 
