@@ -85,5 +85,7 @@ Ishchenko, Volodymyr. 2022. “Ukrainian Voices?” *New Left Review* 138: 1–1
 
 [Return of the Jedi (1983)](https://letterboxd.com/trgenovese/film/return-of-the-jedi/2/) ↻
 
+[The Phantom Menace (1999)](https://letterboxd.com/trgenovese/film/star-wars-episode-i-the-phantom-menace/2/) ↻
+
 ___
 ###### Image: Taylor R. Genovese, December 25, Klaus Death Mask, Poughkeepsie, New York.
