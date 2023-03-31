@@ -37,5 +37,7 @@ Prosic, Tamara. 2022. “Utopian/Dystopian Dialectics in Christian Responses to 
 
 [Prospect (2018)](https://letterboxd.com/trgenovese/film/prospect-2018/1/) ↻
 
+[Prospect (2014)](https://letterboxd.com/trgenovese/film/prospect/)
+
 ___
 ###### Image: Taylor R. Genovese, March 20, Abraham Lincoln Battalion Machine Gun Post, Jamestown, Virginia.
