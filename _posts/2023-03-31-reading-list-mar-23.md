@@ -35,7 +35,7 @@ Prosic, Tamara. 2022. “Utopian/Dystopian Dialectics in Christian Responses to 
 
 [House Comes With a Bird (2022)](https://letterboxd.com/trgenovese/film/house-comes-with-a-bird/)
 
-[Prospect (2018](https://letterboxd.com/trgenovese/film/prospect-2018/1/) ↻
+[Prospect (2018)](https://letterboxd.com/trgenovese/film/prospect-2018/1/) ↻
 
 ___
 ###### Image: Taylor R. Genovese, March 20, Abraham Lincoln Battalion Machine Gun Post, Jamestown, Virginia.
