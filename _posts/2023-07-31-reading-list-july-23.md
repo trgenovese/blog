@@ -1,5 +1,3 @@
-Reading & Film List
-
 ---
 layout: post
 title: Reading List // July 2023
