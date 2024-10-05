@@ -11,7 +11,7 @@ category: reading
 ### Books:
 Buck-Morss, Susan, Kevin McCaughey, and Adam Michaels. 2024. *Seeing <—> Making | Room for Thought*. Inventory Press.
 
-Lenin, Vladimir. 2021. *”Left-Wing” Communism: An Infantile Disorder*. Foreign Languages Press.
+Lenin, Vladimir. 2021. *"Left-Wing" Communism: An Infantile Disorder*. Foreign Languages Press.
 
 ## Films:
 #### [↻ = Rewatch]
@@ -34,7 +34,7 @@ Lenin, Vladimir. 2021. *”Left-Wing” Communism: An Infantile Disorder*. Forei
 
 [Alien³](https://boxd.it/7nCSR3)
 
-[Alien Resurrection (1997](https://boxd.it/7o1lE1)
+[Alien Resurrection (1997)](https://boxd.it/7o1lE1)
 
 [Kinds of Kindness (2024)](https://letterboxd.com/trgenovese/film/kinds-of-kindness/)
 
