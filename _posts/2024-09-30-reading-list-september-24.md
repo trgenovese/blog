@@ -32,7 +32,7 @@ Lenin, Vladimir. 2021. *"Left-Wing" Communism: An Infantile Disorder*. Foreign L
 
 [Civil War (2024)](https://boxd.it/7n9KK1) ↻
 
-[Alien³](https://boxd.it/7nCSR3)
+[Alien³ (1992)](https://boxd.it/7nCSR3)
 
 [Alien Resurrection (1997)](https://boxd.it/7o1lE1)
 
